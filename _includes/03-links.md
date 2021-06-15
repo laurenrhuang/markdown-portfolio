@@ -1,1 +1,1 @@
-[LinkedIn] (www.linkedin.com/in/lauren-huang-b527211a9)
+[LinkedIn](https://www.linkedin.com/in/lauren-huang-b527211a9/)
